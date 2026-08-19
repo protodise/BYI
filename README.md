@@ -8,11 +8,11 @@ I understand having supporter leads to people asking to use it and I will usuall
 
 Before you friend me, I'm not looking to friend people outside of the age group 11-19, if outside of that feel free to int however please do not frq!
 
-Things I'm uncomfortable with : Purposefully covering/crowding in secluded areas, kissing (nuzzling is fine), cudding w/o asking
+Things not to do to me : Purposefully covering/crowding in secluded areas, kissing (nuzzling is fine), cudding w/o asking (if close 1st and 3rd one are fine to do!)
  
 Purposefully breaking my boundaries will get you blocked/hidden.
 
 Main fandoms :
-Osc (Bfdi, Xfohv, PaS, Bfnif, Lakeside party), Hermitcraft/Life series, Animal Hospital, Dandy's world (I do not support Qwel)
+Osc (Bfdi, Xfohv, PaS, Bfnif), Hermitcraft/Life series, Animal Hospital, Dandy's world (I do not support Qwel)
 
 Usually with moki
