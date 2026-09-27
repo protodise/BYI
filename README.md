@@ -1,5 +1,5 @@
 Bfyi :
-Things not to do to me : Purposefully covering/crowding, kissing, cudding w/o asking,  (I'm fine with covering when in crowded areas however when in areas with not alot of people I'd prefer to not be covered. Please ask before cuddling unless my name has c+h)
+Things not to do to me : Purposefully covering/crowding, kissing, cuddling w/o asking,  (I'm fine with covering when in crowded areas however when in areas with not alot of people I'd prefer to not be covered. Please ask before cuddling unless my name has c+h)
 
 I understand having supporter leads to people asking to use it and I will usually agree, however please do not push me to let you use it or be rude if I don't let you, especially if I'm doing something already.
 
