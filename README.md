@@ -13,5 +13,3 @@ Purposefully breaking my boundaries will get you blocked/hidden.
 
 Main fandoms :
 Osc (Bfdi, II, Xfohv, PaS, Bfnif, Lakeside party), Hermitcraft/Life series, Animal Hospital, Dandy's world (I do not support Qwel)
-
-Usually with @Flowrrguy
